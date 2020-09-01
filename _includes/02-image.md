@@ -1,1 +1,1 @@
-[https://twitter.com/LilleMy_/photo] (This is my version of ME!")
+( ![This is my version of ME!](http://ginaroedmfa.blogspot.com/2013/01/lille-my.html) )
